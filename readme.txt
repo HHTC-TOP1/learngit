@@ -5,3 +5,6 @@ hello next time chance
 ÄãÊÇË­°¡
 
 hahha
+
+hello gyuser
+mynameissunshine
