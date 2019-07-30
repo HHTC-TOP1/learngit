@@ -4,7 +4,6 @@ hello next time chance
 
 hahha
 =
-hello gyuser
+hello gyus
 mynameissunshine
 
-this is frist try in GitHub hahaha
